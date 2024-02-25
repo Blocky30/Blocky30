@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Blocky30
+- 👀 I’m interested in coding and languages.
+- 🌱 I’m currently learning more languages at once than I should and sometimes new programming languages.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me: you don't. Unless you know me on another platform or in real life.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I never really managed to consider one of my projects complete.
