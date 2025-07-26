@@ -1,1 +1,3 @@
-Idk what to write here
+im lazy and i do pretty much nothing
+
+idk what else to write here
